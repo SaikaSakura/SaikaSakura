@@ -22,7 +22,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
   -->
 
-## I am Miangliamgwang
+## I am Miangliamg Wang
 
 -   Full-time employee
 -   Currently, working for [Affine](https://affine.gitbook.io/affine/) as frontend engineer
