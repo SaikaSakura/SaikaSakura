@@ -27,6 +27,6 @@ Here are some ideas to get you started:
 -   Full-time employee
 -   Currently, working for [Affine](https://affine.gitbook.io/affine/) as frontend engineer
 -   Chat with me about anything in this universe by [MingliangWang](mingiangwang0o0.gmail.com)
--   Love comic and Video Games
+-   Love comic and Video Games (now playing：Horizon Forbidden West )
 
 
