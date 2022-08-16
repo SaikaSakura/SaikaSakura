@@ -27,5 +27,5 @@ Here are some ideas to get you started:
 - Full-time employee , Maker of [AFFiNE](http://affine.pro/)
 - Currently, working for [AFFiNE](http://affine.pro/) as <b>the Head of Structural Editing</b>
 - Chat with me about anything in this universe by [MingliangWang](mingiangwang0o0.gmail.com)
-- Love comic and Video Games (now playing：Horizon Forbidden West )
+- Love comic and Video Games (now playing：Tales of Arise )
 
